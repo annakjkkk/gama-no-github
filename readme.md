@@ -1,0 +1,1 @@
+o curso se desenvolve muito rápido, é necessário ter força para continuar. As aulas são bem expositórias, o que eu acho que é bom para nosso desenvolvimento. 
